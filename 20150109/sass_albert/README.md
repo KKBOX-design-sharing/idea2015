@@ -1,4 +1,4 @@
-這是一個很長很長的故事
+這是一個很長很長的故事haha
 ===============
 
 <a href="http://event.kkbox.com/user/stories/168216244" target="_blank">![](https://github.com/KKBOX-design-sharing/intro/blob/master/emotion_4.jpg)</a> 
